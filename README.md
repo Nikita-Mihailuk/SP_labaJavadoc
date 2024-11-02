@@ -15,6 +15,7 @@
 -------
 
 Фото:
+
 ![](https://sun9-38.userapi.com/impg/RVdX7bELiniswNhB60ELLHiWPobf2krletzdVw/WtqpwA6HRSc.jpg?size=720x1280&quality=95&sign=303e1d0d59a5795c485111fe4b993446&type=album)
 
 Пункт 3
